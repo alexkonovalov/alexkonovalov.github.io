@@ -1,1 +1,0 @@
-# alexkonovalov.github.io
